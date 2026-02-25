@@ -26,7 +26,7 @@
 
 Do NOT interact if you like any of the following : Hazbing Hotel, Helluva Boss, Your Boyfriend, Boyfriends comic, YBC.
 
-DNI if you're self diagnoser, transphobic, homophobic, racist, on SHEDTWT (unless oomf)
+DNI if you're self diagnoser, transphobic, homophobic, straight cis man, racist, on SHEDTWT (unless oomf)
 
 DNI!!!! if you claim to like mahito more than me (im srs DNI)
 
