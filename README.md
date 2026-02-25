@@ -10,6 +10,29 @@
 
 ⇓
 
+
 [領域展開](https://ibuprofentanyll.straw.page)
+
+⦾
+
+⦾
+
+⦾
+ 
+
+<details>
+  <summary> $\huge{\textsf{DNI if...}}$ </summary>
+ <div align="left">
+
+Do NOT interact if you like any of the following : Hazbing Hotel, Helluva Boss, Your Boyfriend, Boyfriends comic, YBC.
+
+DNI if you're self diagnoser, transphobic, homophobic, racist.
+
+DNI!!!! if you claim to like mahito more than me (im srs DNI)
+
+I block freely!! thaaankk yeww bows bows
+
+</details>
+
 </div>
 
