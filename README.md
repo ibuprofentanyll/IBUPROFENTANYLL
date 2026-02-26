@@ -24,7 +24,7 @@
   <summary> $\huge{\textsf{DNI if...}}$ </summary>
  <div align="left">
 
-Do NOT interact if you like any of the following : Hazbing Hotel, Helluva Boss, Your Boyfriend, Boyfriends comic, YBC.
+Do NOT interact if you like any of the following : Hazbin Hotel, Helluva Boss, Your Boyfriend, Boyfriends comic, YBC.
 
 DNI if you're self diagnoser, transphobic, homophobic, straight cis man, on SHEDTWT (unless oomf), racist
 
