@@ -30,6 +30,8 @@ DNI if you're self diagnoser, transphobic, homophobic, straight cis man, on SHED
 
 DNI!!!! if you claim to like mahito more than me (im srs DNI)
 
+DNI SUKUNA FANS!!!!!!!
+
 I block freely!! thaaankk yeww bows bows
 
 </details>
