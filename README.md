@@ -30,7 +30,7 @@ DNI if you're self diagnoser or support it, proshipper, transphobic, homophobic,
 
 DNI!!!! if you claim to like mahito more than me (im srs DNI)
 
-DNI SUKUNA FANS!!!!!!!
+DNI SUKUNA FANS!!!!!!! (JOKING)
 
 I block freely!! thaaankk yeww bows bows
 
