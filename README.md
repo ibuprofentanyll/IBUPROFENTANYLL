@@ -51,9 +51,8 @@ I block freely!! thaaankk yeww bows bows
 
 
 
-
-<details>
  <div align="center">
+<details>
   <summary> $\huge{\textsf{pls read...}}$ </summary>
  <div align="left">
 
@@ -67,8 +66,12 @@ Haii just wanted to warn everyone that this person is actively breaking DNIs and
 
 My friend and I informed them that theyre breaking our DNIs, they were told months ago and blocked by my friend aswell, yet they still continued to interact. We werent sure if they knew about our DNIs, they then admitted to reading them and blatantly breaking them and calling us snowflakes and sensitive for telling them not to int. This wouldnt have been such a problem if they just apologized and moved on, but they started being hostile and throwing insults.
 
+Apperently this person has also faked a suicide attempt, or so ive heard from a few people.
+
 <p>
 <img src="https://files.catbox.moe/sgzfya.png" /></p>
+<p>
+<img src="https://files.catbox.moe/hy96vv.png" /></p>
 <p>
 <img src="https://files.catbox.moe/j9cv6z.webp" /></p>
 
