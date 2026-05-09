@@ -34,6 +34,11 @@ DNI SUKUNA FANS!!!!!!! (JOKING)
 
 I block freely!! thaaankk yeww bows bows
 
+
+<img https://ibb.co/N2Mqxk1D /></p>
+
+
+
 </details>
 
 </div>
