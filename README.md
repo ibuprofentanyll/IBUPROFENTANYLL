@@ -69,6 +69,8 @@ My friend and I informed them that theyre breaking our DNIs, they were told mont
 
 Apperently this person has also faked a suicide attempt, or so ive heard from a few people. They also seem to have a pattern of actively trying to make people uncomfortable
 
+More recenly this person has threatened me and my friend with ''having our IPs'' implying theyd dox us if we allowed them to just get away with their nasty behaviour.
+
 also the account on the pictures below is the same person, they made a new account to hide instead of taking responsibility.
 
 <p>
