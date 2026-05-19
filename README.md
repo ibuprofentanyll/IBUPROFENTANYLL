@@ -33,6 +33,8 @@ DNI!!!! if you claim to like mahito more than me (im srs DNI)
 
 DNI SUKUNA FANS!!!!!!! (JOKING)
 
+Mink and Noiz fans (dmmd) int wsith causion...
+
 I block freely!! thaaankk yeww bows bows
 
 
