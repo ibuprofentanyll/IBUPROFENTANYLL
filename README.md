@@ -27,13 +27,13 @@
 
 Do NOT interact if you like any of the following : Hazbin Hotel, Helluva Boss, Your Boyfriend, Boyfriends comic, YBC.
 
-DNI if you're self diagnoser or support it, zoophile, maga (overall rightwinged), proshipper, transphobic, homophobic, straight cis man, on SHEDTWT (unless oomf), racist
+DNI if you're self diagnoser or support it, blatantly ignoring dnis, hate my friends, pedophile, zoophile, maga (overall rightwinged), proshipper (com shippers iwc), transphobic, homophobic, straight cis man, on SHEDTWT (unless oomf), racist
 
 DNI!!!! if you claim to like mahito more than me (im srs DNI)
 
 DNI SUKUNA FANS!!!!!!! (JOKING)
 
-Mink and Noiz fans (dmmd) int wsith causion...
+Mink and Noiz fans (dmmd) int with causion...
 
 I block freely!! thaaankk yeww bows bows
 
