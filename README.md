@@ -4,7 +4,7 @@
 ![](https://komarev.com/ghpvc/?username=ibuprofentanyll&color=111217&style=plastic&label=≽^•⩊•^≼)
 
 <div align="center">
-<img src="https://i.postimg.cc/C1WhKjnv/hello-profile-go-now2.jpg">
+<img src="https://i.postimg.cc/wTn5DBnn/hello-profile-go-now3png.png">
 </div>
 
 straw currently under construction !!!
