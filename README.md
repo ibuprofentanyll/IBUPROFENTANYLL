@@ -3,9 +3,9 @@
 
 ![](https://komarev.com/ghpvc/?username=ibuprofentanyll&color=111217&style=plastic&label=)
 
-<p>
-<img https://i.postimg.cc/brbBz8pf/hello-whiteman.jpg"width="400" height="600" /></p>
-
+<div align="center">
+<img src="https://i.postimg.cc/GtJx7pbh/hello-profile-go-now.png">
+</div>
 
 !Check my straw!
 
