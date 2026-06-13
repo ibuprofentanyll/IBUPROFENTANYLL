@@ -1,18 +1,18 @@
 <div align="center">
 // !HAII! //
 
-![](https://komarev.com/ghpvc/?username=ibuprofentanyll&color=111217&style=plastic&label=)
+![](https://komarev.com/ghpvc/?username=ibuprofentanyll&color=111217&style=plastic&label=≽^•⩊•^≼)
 
 <div align="center">
-<img src="https://i.postimg.cc/GtJx7pbh/hello-profile-go-now.png">
+<img src="https://i.postimg.cc/C1WhKjnv/hello-profile-go-now2.jpg">
 </div>
 
-!Check my straw!
-
-⇓
+straw currently under construction !!!
 
 
-[領域展開](https://ibuprofentanyll.straw.page)
+
+
+
 
 ⦾
 
