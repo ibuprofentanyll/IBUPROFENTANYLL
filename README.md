@@ -9,7 +9,7 @@
 
 straw currently under construction !!!
 
-
+If you find the og artist of my pfp pls lmk i cant find them for the life of me
 
 
 
