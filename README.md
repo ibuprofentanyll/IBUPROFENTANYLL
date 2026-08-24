@@ -37,9 +37,7 @@ DNI if you're self diagnoser or support it, blatantly ignoring dnis, hate my fri
 
 DNI!!!! if you claim to like mahito more than me (im srs DNI)
 
-DNI SUKUNA FANS!!!!!!! (JOKING)
-
-Mink and Noiz fans (dmmd) int with causion...
+Mink and Sukuna fans int with causion...
 
 I block freely!! thaaankk yeww bows bows
 
