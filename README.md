@@ -15,7 +15,7 @@
 
 straw currently under construction !!!
 
-If you find the og artist of my pfp pls lmk i cant find them for the life of me
+If you find the og artist of my pfp pls lmk i cant find them for the life of me not even way back machine could save me w this one
 
 ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
